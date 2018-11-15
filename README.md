@@ -1,1 +1,24 @@
 # formative
+
+link to live site https://kanikamehta1.github.io/formative/
+
+                                       COMPUTER SCIENCE - lets sell it to you.
+
+                                    How the heck do you define computer science? 
+
+Well, Computer Science is basically a forever evolving concept which involves an individual in the make up of the world making it a super creative and challenging sector to get involved in. There'll always be something new and out of the blue happening in this department and this lifelong promise of learning and 'woah that's so f-ing cool!' is pretty appealing and enough to sell this engrossing subject. You can enter this department with nil knowledge about it and the subject will help you adapt to its concepts pretty smoothly that you'll be a tech genius in no time! 
+
+
+
+
+
+
+
+
+
+                                                      ABOUT
+                                                      
+                                                      
+This article is brought to you by Kanika [kun-ika] who is struggling in max of all her 5 modules so send immediate help. This is not her last minute submission and she does'nt understand why this particular piece of info needs to be addressed in *bold* [italics because she still needs to figure out how to get that bold feature thing]. She had submitted her summative a couple of hours ago and whiled away to finding happiness in Flat White [a pretty awesome deal] followed by a binge of the Haunting on Hill Street which is pretty clever actually considering this formative which had to be submitted. Anyways,c heck out my fellow team mates' stuff as well, pretty dope kids. dope as in some intelligent and cool kids who probably have much better content.                                                     
+
+
