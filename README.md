@@ -32,6 +32,6 @@ This article is brought to you by Kanika [kun-ika] who is struggling in max of a
 
 find this goddess on linkedin- linkedin.com/in/kanikamehta1
                      gram- @cheerstokan 
-                     facebook- Kanika Mehta [basic shit]
+                     facebook- Kanika Mehta [basic shit].
 
 
